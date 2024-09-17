@@ -1,0 +1,1 @@
+1. nie wzywaj pana boga na daremno
